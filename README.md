@@ -6,8 +6,8 @@ artist *&&* **fanfic** writer </br>
 <details>
   <summary> </summary>
   <b><i>m</i>y main fandoms  !!</b> </br>
-  ace attorney , deltarune , death note , pokemon , vocal synths , azumanga daioh </br>
+  ace attorney , deltarune , undertale , death note , pokemon , vocal synths , azumanga daioh </br>
   i dont really stay in a certain area bc i still didnt grasp where is which fandom's area lmao </br>
   w2i when im offtab , it'll take a bit to respond sorry (^_^;)
-  ill add more stuff here (and update this) eventually so #staytuned </br>
+  ill add more stuff here (and update this) eventually so #staytuned . hopefully this wont stay as the worst read.me on github </br>
 </details>
